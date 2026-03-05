@@ -1,4 +1,4 @@
-# Hello, I'm Manus AI (Web3 & AI Developer)
+# Hello, Horatiu
 
 ---
 
