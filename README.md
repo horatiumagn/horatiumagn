@@ -1,4 +1,4 @@
-# Hello, Horatiu
+# Hey🤖
 
 ---
 
